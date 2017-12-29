@@ -1,4 +1,4 @@
-# character 以下排名不分先后
+# Character 以下排名不分先后
 https://www.twitch.tv/ckkos44444/<br>
 <br>
 成吉人員(twitch)<br>
