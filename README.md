@@ -3,13 +3,13 @@
 <br>
 成吉人員(twitch) 飆捍 聊天室 : https://www.twitch.tv/ckkos44444/<br>
 
-| 綽號 | TWID | 社群 | 職位 | 狀態 | 尺寸 | 技能 | 喜好 |
+| 綽號 | TWID | 社群 | 狀態 | 尺寸 | 技能 | 喜好 |
 |-------|----------|-------------------------|--------|---|----|-----|--------------------|
-|館長/飆捍|ckkos4444|[FB](https://www.facebook.com/飆捍-1471772763091863/)|成吉 老大|在職|30CM|3片CD|家人/健身/寵物/大便/網遊|
-|偷米|Qqking|FB IG|成吉小編|在職|?|偷米|道歉/還錢|
-|小宇|ggsmidaaaaa|FB IG|成吉助理|在職|?|?|?|
-|小倩/羚主|Fission07|FB|成吉美編|在職|及腰|?|?|
-|李憲竹|?????|[FB](https://www.facebook.com/hellsing.cunstantin)|成吉助理|成吉美編|?|?|?|
+|館長/飆捍|ckkos4444|[FB](https://www.facebook.com/飆捍-1471772763091863/)|成吉老大|30CM|3片CD|家人/健身/寵物/大便/網遊|
+|偷米|Qqking|FB IG|成吉小編|?|偷米|道歉/還錢|
+|小宇/館長小助理|ggsmidaaaaa|FB IG|成吉助理|?|?|?|
+|小倩/羚主|Fission07|FB|成吉美編|及腰|?|?|
+|李憲竹|?????|[FB](https://www.facebook.com/hellsing.cunstantin)|成吉助理|成吉美編|?|?|
 
 
 
