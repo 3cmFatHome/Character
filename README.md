@@ -1,8 +1,7 @@
 # Character 以下排名不分先后
-飆捍 twitch 聊天室 : https://www.twitch.tv/ckkos44444/<br><br>
 以下資料均為 Twitch 和 FaceBook 公開資訊，不違反個人隱私條例<br>
 <br>
-成吉人員(twitch)<br>
+成吉人員(twitch) 飆捍 twitch 聊天室 : https://www.twitch.tv/ckkos44444/<br>
 
 | 綽號 | TWID | 社群 | 職位 | 狀態 | 尺寸 | 技能 | 喜好 |
 |-------|----------|-------------------------|--------|---|----|-----|--------------------|
