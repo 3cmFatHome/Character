@@ -9,7 +9,7 @@
 |偷米|Qqking|FB IG|成吉小編|?|偷米|道歉/還錢|
 |小宇/館長小助理|ggsmidaaaaa|FB IG|成吉助理|?|?|?|
 |小倩/羚主|Fission07|FB|成吉美編|及腰|?|?|
-|李憲竹|?????|[FB](https://www.facebook.com/hellsing.cunstantin)|成吉助理|成吉美編|?|?|
+|李憲竹|?|[FB](https://www.facebook.com/hellsing.cunstantin)|成吉助理|成吉美編|?|?|
 
 
 
