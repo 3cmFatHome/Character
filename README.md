@@ -8,7 +8,7 @@
 |館長/飆捍|ckkos4444|[FB](https://www.facebook.com/飆捍-1471772763091863/)|成吉 老大|在職|30CM|3片CD|家人/健身/寵物/大便/網遊|
 |偷米|Qqking|FB IG|成吉小編|在職|?|偷米|道歉/還錢|
 |小倩/羚主|Fission07|FB|成吉美編|在職|及腰|?|?|
-|小宇/館長小助理|ggsmidaaaaa|FB|成吉助理|在職|?|?|?|
+|小宇/館長小助理|ggsmidaaaaa|FB IG|成吉助理|在職|?|?|?|
 
 |李憲竹|?????|[FB](https://www.facebook.com/hellsing.cunstantin)|成吉助理|成吉美編|?|?|?|
 
