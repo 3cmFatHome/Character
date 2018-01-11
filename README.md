@@ -1,5 +1,5 @@
 # Character 以下排名不分先后
-以下資料均為 FaceBook/Instagram/Twitch 公開資訊，不違反個人隱私條例<br>
+以下資料均為 FaceBook/Instagram/Twitch/YouTube 公開資訊，不違反個人隱私條例<br>
 <br><br>
 成吉人員(twitch) 飆捍 聊天室 : https://www.twitch.tv/ckkos44444/<br>
 
@@ -9,7 +9,7 @@
 |偷米/成吉思汗小編|Qqking|[FB](https://www.facebook.com/tommy.sejun.lee) [IG](https://www.instagram.com/tommy_sejun_lee/)|成吉小編|?|偷米|道歉/還錢|
 |小宇/館長小助理|ggsmidaaaaa|FB|成吉助理|?|GG砸鐵槌|?|
 |肥貓隊長|d32332103|FB|成吉美編|?|?|?|
-|小倩/羚主/李宗晏|Fission07|[FB](https://www.facebook.com/profile.php?id=1622539177)|成吉美編|及腰|?|?|
+|小倩/羚主/李宗晏|Fission07|[FB](https://www.facebook.com/profile.php?id=1622539177) [YT](https://www.youtube.com/user/Fission7)|成吉美編|及腰|?|?|
 |李憲竹|?|[FB](https://www.facebook.com/hellsing.cunstantin)|成吉美編|?|?|?|
 
 <br>
