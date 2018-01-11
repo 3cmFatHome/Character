@@ -11,6 +11,9 @@
 |肥貓隊長|d32332103|FB|成吉美編|?|?|?|
 |小倩/羚主/李宗晏|Fission07|[FB](https://www.facebook.com/profile.php?id=1622539177) [YT](https://www.youtube.com/user/Fission7)|成吉美編|及腰|?|?|
 |李憲竹|?|[FB](https://www.facebook.com/hellsing.cunstantin) [YT](https://www.youtube.com/user/heygod8389)|成吉美編|?|?|?|
+|小遠/小遠打球|secretmagicc|[FB](https://www.facebook.com/profile.php?id=100001782946775)|成吉助理|?|?|?|
+
+
 
 <br>
 
