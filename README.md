@@ -38,7 +38,7 @@
 
 | 名稱/綽號 | ID | 社群 | 職位 | 尺寸 | 技能 | 喜好 |
 |-----------|-----|-------------------------------------------------------------|----|---|----|-----|
-|Yuting Tang|唐于婷|[FB](https://www.facebook.com/profile.php?id=100000186344505)|霸图努|?|?|?|
+|Yuting Tang|唐于婷|[FB](https://www.facebook.com/profile.php?id=100000186344505) [IG](https://www.instagram.com/yuting_0401/)|霸图努|?|?|?|
 |Jun|陳俊仁|[FB](https://www.facebook.com/profile.php?id=100000134207853)|霸图努|?|?|?|
 |Dee Wang|王一驊|[FB](https://www.facebook.com/dee.wang1)|大胖學生|?|?|?|
 
