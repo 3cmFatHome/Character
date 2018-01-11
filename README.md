@@ -1,5 +1,7 @@
 # Character 以下排名不分先后
 以下資料均為 FaceBook/Instagram/Twitch/YouTube 公開資訊，不違反個人隱私條例<br>
+twitch 全球所有扳手 : https://www.twitch.tv/team/staff
+
 <br><br>
 成吉人員(twitch) 飆捍 聊天室 : https://www.twitch.tv/ckkos44444/<br>
 
