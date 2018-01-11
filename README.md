@@ -26,7 +26,7 @@
 
 | 名稱/綽號 | ID | 社群 | 職位 | 尺寸 | 技能 | 喜好 |
 |-----|-----|------------------------------------------------------------|-----------|---|----|-----|
-|大師兄|李慶元|[FB](https://www.facebook.com/profile.php?id=100001151450587)|成吉副總經理|?|?|?|
+|大師兄|李慶元|[FB](https://www.facebook.com/profile.php?id=100001151450587) [IG](https://www.instagram.com/aape1128/)|成吉副總經理|?|?|?|
 |大胖|江暐至|[FB](https://www.facebook.com/profile.php?id=100001189143126)|成吉經理/霸圖努|?|凸|?|
 |可樂/cola|張軒綜|男|?|在職|?|?|?|
 |?|李鎗|[FB](https://www.facebook.com/profile.php?id=100000087944556)|?|在職|?|?|?|
