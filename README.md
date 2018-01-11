@@ -28,9 +28,9 @@
 |-----|-----|------------------------------------------------------------|-----------|---|----|-----|
 |大師兄|李慶元|[FB](https://www.facebook.com/profile.php?id=100001151450587) [IG](https://www.instagram.com/aape1128/)|成吉副總經理|?|?|?|
 |大胖|江暐至|[FB](https://www.facebook.com/profile.php?id=100001189143126)|成吉經理/霸圖努|?|凸|?|
-|可樂/cola|張軒綜|[FB](https://www.facebook.com/可樂-cola-414950612038582/) [IG](https://www.instagram.com/hsuan_chang1005/)|?|在職|?|?|?|
-|?|李鎗|[FB](https://www.facebook.com/profile.php?id=100000087944556)|?|在職|?|?|?|
-|Lily|洛梨梨|[FB](https://www.facebook.com/luolily285)|櫃檯|在職|?|?|?|
+|可樂/cola|張軒綜|[FB](https://www.facebook.com/可樂-cola-414950612038582/) [IG](https://www.instagram.com/hsuan_chang1005/)|?|?|?|?|?|
+|?|李鎗|[FB](https://www.facebook.com/profile.php?id=100000087944556)|?|?|?|?|?|
+|Lily|洛梨梨|[FB](https://www.facebook.com/luolily285)|櫃檯|?|?|?|?|
 
 <br>
 
