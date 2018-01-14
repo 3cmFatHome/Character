@@ -45,7 +45,7 @@ twitch 全球所有扳手 : https://www.twitch.tv/team/staff
 |-----------|-----|-------------------------------------------------------------|----|---|----|-----|
 |Yuting Tang|唐于婷|[FB](https://www.facebook.com/profile.php?id=100000186344505) [IG](https://www.instagram.com/yuting_0401/)|霸图努|?|?|?|
 |Jun|陳俊仁|[FB](https://www.facebook.com/profile.php?id=100000134207853)|霸图努|?|?|?|
-|Dee Wang|王一驊|[FB](https://www.facebook.com/dee.wang1)|大胖學生|?|?|?|
+|Dee Wang|王一驊|[FB](https://www.facebook.com/dee.wang1) [IG](https://www.instagram.com/_deewang_/)|大胖學生|?|?|?|
 
 <br>
 
