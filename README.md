@@ -9,10 +9,10 @@ twitch 全球所有扳手 : https://www.twitch.tv/team/staff
 |-------|----------|----------------------------------------------------|------|----|-----|--------------------|
 |館長/[飆捍](https://www.facebook.com/Toperworld/)/[陳之漢](https://www.facebook.com/profile.php?id=100000151038133)|ckkos44444|[FB](https://www.facebook.com/飆捍-1471772763091863/) [YT](https://www.youtube.com/user/kos44444)|成吉老大|30CM|3片CD|家人/健身/寵物/大便/網遊|
 |偷米/成吉思汗小編|Qqking|[FB](https://www.facebook.com/tommy.sejun.lee) [IG](https://www.instagram.com/tommy_sejun_lee/)|成吉小編|?|偷米|道歉/還錢|
-|小宇/館長小助理|ggsmidaaaaa|FB|成吉助理|?|GG砸鐵槌|?|
 |肥貓隊長|d32332103|FB|成吉美編|?|?|?|
 |小倩/羚主/李宗晏|Fission07|[FB](https://www.facebook.com/profile.php?id=1622539177) [YT](https://www.youtube.com/user/Fission7)|成吉美編|及腰|?|?|
 |李憲竹|?|[FB](https://www.facebook.com/hellsing.cunstantin) [YT](https://www.youtube.com/user/heygod8389)|成吉美編|?|?|?|
+|小宇/館長小助理|ggsmidaaaaa|FB|成吉助理|?|GG砸鐵槌|?|
 |小遠打球/姚越遠|secretmagicc|[FB](https://www.facebook.com/profile.php?id=100001782946775)|成吉助理|?|?|?|
 
 
