@@ -44,7 +44,7 @@ twitch 全球所有扳手 : https://www.twitch.tv/team/staff
 | 名稱/綽號 | ID | 社群 | 職位 | 尺寸 | 技能 | 喜好 |
 |-----------|-----|-------------------------------------------------------------|----|---|----|-----|
 |Jun|陳俊仁|[FB](https://www.facebook.com/profile.php?id=100000134207853) [IG](https://www.instagram.com/swjh881013/)|霸图努|?|?|?|
-|?|周承緯|[FB](https://www.facebook.com/frank.chou.104) [IG](https://www.instagram.com/frank.chou.104/)|霸图努|?|?|?|
+|Frank Chou|周承緯|[FB](https://www.facebook.com/frank.chou.104) [IG](https://www.instagram.com/frank.chou.104/)|霸图努|?|?|?|
 |Yuting Tang|唐于婷|[FB](https://www.facebook.com/profile.php?id=100000186344505) [IG](https://www.instagram.com/yuting_0401/)|霸图努|?|?|?|
 |Dee Wang|王一驊|[FB](https://www.facebook.com/dee.wang1) [IG](https://www.instagram.com/_deewang_/)|大胖學生|?|?|?|
 
