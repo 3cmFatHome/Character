@@ -35,6 +35,7 @@ twitch 全球所有扳手 : https://www.twitch.tv/team/staff
 |大胖|江暐至|[FB](https://www.facebook.com/profile.php?id=100001189143126)|成吉經理/霸圖努|?|凸|?|
 |阿任|郭淮紳|[FB](https://www.facebook.com/GuoHuaishen)|林口店長|?|?|?|
 |最狂業務|李鎗|[FB](https://www.facebook.com/profile.php?id=100000087944556) [IG](https://www.instagram.com/lee_gun_727/)|銷售主管|?|?|?|?|
+|右膝|吳宥希|[FB](https://www.facebook.com/profile.php?id=100011297257014) [IG](https://www.instagram.com/lee_gun_727/)|健體顧問|?|?|?|?|
 |Lily|洛梨梨|[FB](https://www.facebook.com/luolily285)|櫃檯|?|?|?|?|
 |可樂/cola|張軒綜|[FB](https://www.facebook.com/可樂-cola-414950612038582/) [IG](https://www.instagram.com/hsuan_chang1005/)|?|?|?|?|?|
 <br>
